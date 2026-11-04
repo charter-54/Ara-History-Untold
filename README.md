@@ -217,4 +217,4 @@ Ara: History Untold is distributed as a full free version with all features and 
 Don’t miss out on the chance to lead your civilization to glory! **Download Ara: History Untold now and embark on your strategic journey today!**
 
 ---
-**Last updated:** 2026-11-04 16:45:17 UTC
+**Last updated:** 2026-11-04 22:21:14 UTC
